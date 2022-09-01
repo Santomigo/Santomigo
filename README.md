@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Santomigo
-- 👀 I’m interested in  IT special
+- 👀 I’m interested in the IT special
 - 🌱 I’m currently learning  in the sfer QA 
 - 💞️ I’m looking to collaborate on ..
  my Email daniafil18233@gmail.com
